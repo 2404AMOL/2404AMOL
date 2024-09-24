@@ -1,4 +1,4 @@
-![logo](https://github.com/2404AMOL/2404AMOL/blob/main/Grey%20Minimalist%20Corporate%20Personal%20Profile%20LinkedIn%20Banner.png)
+![logo](https://github.com/2404AMOL/2404AMOL/blob/main/Purple%20Abstract%20Graphic%20Design%20LinkedIn%20Article%20Cover%20Image.png)
 <h1 align="center">Hi 👋, I'm Amol Pawar</h1>
 
 ###
